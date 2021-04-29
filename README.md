@@ -1,3 +1,3 @@
 # Lietuviškų domenų sąrašas
 
-Šiame sąraše yra 136185 domenai.
+Šiame sąraše yra [b]136 185[/b] domenai.
